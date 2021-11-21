@@ -1,0 +1,4 @@
+# Data-Mining
+## INDRA PUTRA GEMILANG
+## 19.11.2780
+## INFORMATIKA 03
